@@ -1,6 +1,6 @@
 ### Hey, I'm Enamul 👋🏻
 
-I'm a 20-year-old CS student based in Bangladesh, passionate about crafting new experiences and open to new opportunities in the dynamic realms of technology.
+I'm a 22-year-old CS student based in Bangladesh, passionate about crafting new experiences and open to new opportunities in the dynamic realms of technology.
 
 
 ## 🚀 Fun Facts 
